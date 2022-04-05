@@ -7,3 +7,8 @@
             - Funciones y Ecuaciones📚🖊
 
 > En la carre de Ingeniería he trabajado con muchos compañeros de clase uno de ellos es @RaulinGra 👌🏼
+
+## Nombre Completo
+Vieri Jacob de León Sosa
+### Carné
+1517122
